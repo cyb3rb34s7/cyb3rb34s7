@@ -28,6 +28,6 @@
 ### 📬 Reach Me
 
 - 🔗 [LinkedIn](https://www.linkedin.com/in/rajakumarsinghh/)  
-- 📧 19ucc019@lnmiit.ac.in
+- 📧 rajakumarsinghh01@gmail.com
 
 ---
